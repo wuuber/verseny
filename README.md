@@ -1,0 +1,2 @@
+# verseny
+Úgy ahogy :)
